@@ -1,1 +1,0 @@
-# Vyvoj_mobilnych_aplikacii
